@@ -1,1 +1,1 @@
-
+zamandan kazanalım
